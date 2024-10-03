@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on exciting project related to Automation
 - 📫 How to reach me:- insta- mindtrackers (probably sleeping ;)
 - ⚡ Fun fact: iykyk
+- na koi umang h na koi tarang h, Meri zindagi h kya ek kati patang h
 
 <!---
 mindtrackers/mindtrackers is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
